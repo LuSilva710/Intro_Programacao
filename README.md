@@ -29,4 +29,4 @@ Agradeço a sua visita e contribuição! Vamos juntos aprender e crescer na jorn
 
 ---
 Copyright (©) 2023 <br>
-Feito com ♥ by @Lu Silva
+Feito com ♥ por @Lu Silva
